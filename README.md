@@ -23,7 +23,14 @@
 
 
 <img src="https://files.catbox.moe/9l66ns.png" width="100" height="100"/>  ‎  ‎  ‎  ‎ <img src="https://files.catbox.moe/2k00or.png" width="100" height="100"/>  ‎  ‎  ‎  ‎ <img src="https://files.catbox.moe/ma3q2y.png" width="100" height="100"/>
-  ‎  ‎  ‎  ‎ <img src="https://files.catbox.moe/1jg0ey.png" width="100" height="100"/>  ‎  ‎  ‎ <img src="https://files.catbox.moe/yc1pak.png" width="100" height="100"/>  ‎  ‎  ‎ <img src="https://files.catbox.moe/0t1dmq.png" width="100" height="100"/>  <img src="https://files.catbox.moe/a0av79.png" width="100" height="100"/> 
+  ‎  ‎  ‎  ‎ <img src="https://files.catbox.moe/1jg0ey.png" width="100" height="100"/>  ‎  ‎  ‎ <img src="https://files.catbox.moe/yc1pak.png" width="100" height="100"/>  ‎  ‎  ‎ <img src="https://files.catbox.moe/0t1dmq.png" width="100" height="100"/>  <img src="https://files.catbox.moe/a0av79.png" width="100" height="100"/>
+
 
    ‎ ‎ ‎Jim lake jr ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎‎‎‎ ‎ ‎  ‎ ‎ ‎ ‎ Venture ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ Glamrock freddy ‎ ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ Monty ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎  ‎  ‎  ‎Beast boy ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ Loki ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ Wwdits family
+
+<img src="https://files.catbox.moe/r3t4eh.png" width="100" height="100"/>
+
+
+   ‎ ‎ ‎Kirishima
+
 </details>
