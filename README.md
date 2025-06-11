@@ -17,3 +17,13 @@
 
  <img src="https://files.catbox.moe/9fa30p.gif" width="40" height="40"/> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31buv3yz5qvwdc5gfuwwzgen27qa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0d1117&interchange=false&bar_color=46423e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </div>
+<details>
+
+<summary>Fav characters</summary>
+
+
+<img src="https://files.catbox.moe/9l66ns.png" width="100" height="100"/>  ‎  ‎  ‎  ‎ <img src="https://files.catbox.moe/2k00or.png" width="100" height="100"/>  ‎  ‎  ‎  ‎ <img src="https://files.catbox.moe/ma3q2y.png" width="100" height="100"/>
+  ‎  ‎  ‎  ‎ <img src="https://files.catbox.moe/1jg0ey.png" width="100" height="100"/>  ‎  ‎  ‎ <img src="https://files.catbox.moe/a0av79.png" width="100" height="100"/>
+
+Jim lake jr ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ My main<3  ‎  ‎  ‎  ‎  ‎  ‎  ‎ Glamrock freddy ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ Monty
+</details>
