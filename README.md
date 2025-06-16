@@ -27,9 +27,10 @@
 3. Glamrock freedy 
 4. Jim jr lake
 5. Loki laufeyson  
-6. Monty 
-7. Venture 
-8. Wwdits family
+6. Monty
+7. TangoTek 
+8. Venture 
+9. Wwdits family
 
    ‎ ‎ ‎
    ‎ ‎ ‎
