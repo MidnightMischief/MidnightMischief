@@ -24,7 +24,7 @@
 
 1. Beast boy
 2. Bdoubleo100
-3. Glamrock freedy 
+3. Glamrock freddy 
 4. Jim jr lake
 5. Loki laufeyson  
 6. Monty
