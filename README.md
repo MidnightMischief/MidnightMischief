@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=MidnightMischief&color=dc143c&label=Vampires+killed)
 
 <div align="center">
-<img src="https://i.postimg.cc/yYXG4rP2/pride-flag-6-stripes-20.png" width="15" height="12"/>
+<img src="https://i.postimg.cc/yYXG4rP2/pride-flag-6-stripes-20.png" width="15" height="12"/> ??
 
 
 ‎<img src="https://files.catbox.moe/4oq4tg.gif" width="500" height="350"/>
