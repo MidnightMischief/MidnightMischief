@@ -24,13 +24,14 @@
 
 1. Beast boy
 2. Bdoubleo100
-3. Glamrock freddy 
-4. Jim jr lake
-5. Loki laufeyson  
-6. Monty
-7. TangoTek 
-8. Venture 
-9. Wwdits family
+3. Eijiro Kirishima
+4. Glamrock freddy 
+5. Jim jr lake
+6. Loki laufeyson  
+7. Monty
+8. TangoTek 
+9. Venture 
+10. Wwdits family
 
    ‎ ‎ ‎
    ‎ ‎ ‎
