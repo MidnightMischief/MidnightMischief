@@ -6,7 +6,7 @@
 
 ‎<img src="https://media1.tenor.com/m/hceHsDRJemkAAAAC/cho-hyun-ju-hyun-ju.gif" width="300" height="300"/>
 
-15 ‎ ‎non-binary ‎ ‎ <img src="https://yokai.crd.co/assets/images/gallery27/ab8e6e56.gif?v=b4df531c" width="15" height="12"/>ㅤnorsk
+15 ‎ ‎non-binary ‎ ‎ <img src="https://gifs.crd.co/assets/images/gallery25/aabba3e9.gif?v=ef433a6f" width="15" height="12"/>ㅤnorsk
 
 <img src="https://gifcity.carrd.co/assets/images/gallery10/5146d312.gif?v=e3c0bc0f" width="15" height="12"/>ㅤ[strawpage](https://beast-boy.straw.page/)ㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)ㅤ<img src="https://gifcity.carrd.co/assets/images/gallery10/1911edc0.gif?v=e3c0bc0f" width="15" height="12"/> 
 </div>
