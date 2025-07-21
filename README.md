@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=MidnightMischief&color=dc143c&label=Vampires+killed)
+![](https://komarev.com/ghpvc/?username=MidnightMischief&color=dc143c&label=Guards+killed)
 
 <div align="center">
 <img src="https://i.postimg.cc/yYXG4rP2/pride-flag-6-stripes-20.png" width="15" height="12"/> ??
